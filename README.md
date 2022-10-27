@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @konkissner, co-founder of @entrecode
+👋 Hi, I’m @konkissner, co-founder of @entrecode
